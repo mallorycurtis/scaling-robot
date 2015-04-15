@@ -13,7 +13,7 @@
   >You'll look at least on love's remains,
   A grave's one violet:
   Your look? that pays a thousand pains.
-  What's death? _You'll love me yet!_
+  What's death? *You'll love me yet!*
     
   -Robert Browning
     
